@@ -13,4 +13,4 @@ It takes time to learn new things, and you gotta do it gradually.
 ..
 
 sigh
-. gee
+. gee . start from blade grass meet w/ sir renz
