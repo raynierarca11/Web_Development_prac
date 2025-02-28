@@ -3,7 +3,7 @@ practice
 
 Use HTML, JS, and CSS
 
-Laravel, Ruby 
+Laravel, Ruby ..
 
 be a programmer programmer
 
