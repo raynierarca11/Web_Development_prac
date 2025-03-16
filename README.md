@@ -5,7 +5,7 @@ Use HTML, JS, and CSS
  heyewa
 Laravel, Ruby ..
 
-be a programmer programmer
+be a programmer programmered
  yeahdsds
 practice makes perfect
 
