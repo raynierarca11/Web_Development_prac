@@ -8,7 +8,7 @@ Laravel, Ruby ..
 be a programmer programmered
  yeahdsds
 practice makes perfect
-
+eeeeee
 It takes time to learn new things, and you gotta do it gradually.
 ..
  eee 
