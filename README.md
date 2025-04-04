@@ -6,7 +6,7 @@ Use HTML, JS, and CSS
 Laravel, Ruby ..
 
 be a programmer programmered ee
- yeahdsds
+ yeahdsdsd
 practice makes perfect
 eeeeee
 It takes time to learn new things, and you gotta do it gradually.e
