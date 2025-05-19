@@ -9,7 +9,7 @@ be a programmer programmered ee
  yeahdsdsd
 practice makes perfect
 eeeeeess
-It takes time to learn new things, and you gotta do it gradually.e
+It takes time to learn new things, and you gotta do it gradually.e..
 ..
  eee 
 sighbn.
